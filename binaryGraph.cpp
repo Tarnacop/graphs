@@ -1,1 +1,1 @@
-aa
+Ia programul, nu-i programul!
